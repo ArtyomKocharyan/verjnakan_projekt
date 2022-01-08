@@ -1,0 +1,2 @@
+# verjnakan_projekt
+Avartakan
